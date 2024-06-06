@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @laveenahub
 - 👀 I’m interested in poster making, graphic designing.
-- 🌱 I’m Technophile.
+- 🌱 A Design Geek
 - 📫 How to reach me
 -  Gmail: laveenahere@gmail.com.
 -  LinkedIn: https://www.linkedin.com/in/laveenahere
