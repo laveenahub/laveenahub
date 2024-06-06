@@ -3,7 +3,7 @@
 - 🌱 I’m Technophile.
 - 📫 How to reach me
 -  Gmail: laveenahere@gmail.com.
--  LinkedIn: https://www.linkedin.com/in/laveena-chetwani-5572b8220
+-  LinkedIn: https://www.linkedin.com/in/laveenahere
 
 <!---
 laveenahub/laveenahub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
