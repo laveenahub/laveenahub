@@ -2,7 +2,7 @@
 - 👀 I’m interested in poster making, graphic designing.
 - 🌱 I’m Technophile.
 - 📫 How to reach me
--  Gmail: laveenachetwani8@gmail.com.
+-  Gmail: laveenahere@gmail.com.
 -  LinkedIn: https://www.linkedin.com/in/laveena-chetwani-5572b8220
 
 <!---
