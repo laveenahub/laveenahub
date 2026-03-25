@@ -2,8 +2,8 @@
 - 👀 I’m interested in poster making, graphic designing.
 - 🌱 A Design Geek
 - 📫 How to reach me
--  Gmail: laveenahere@gmail.com.
--  LinkedIn: https://www.linkedin.com/in/laveenahere
+-  Gmail: contact@laveenachetwani.online
+-  LinkedIn: https://www.linkedin.com/in/laveena-chetwani
 
 <!---
 laveenahub/laveenahub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
