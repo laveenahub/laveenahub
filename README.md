@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @laveenahub
-- 👀 I’m interested in poster making, graphic designing.
-- 🌱 A Design Geek
+- 👀 I’m a Design Geek
 - 📫 How to reach me
 -  Gmail: contact@laveenachetwani.online
 -  LinkedIn: https://www.linkedin.com/in/laveena-chetwani
